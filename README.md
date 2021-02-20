@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 
 ### Contact me
-- Twitter - [@leo_nerone](https://twitter.com/leo_neron)
+- Twitter - [@leo_nerone](https://twitter.com/leo_nerone)
 - LinkedIn - [Leonardo Nerone](https://www.linkedin.com/in/leonardo-felipe-nerone/)
 - Email: [leofnerone@protonmail.com](mailto:leofnerone@protonmail.com)
 - PGP Fingerprint: 508A 37BA 0F98 21C2 A9B3  E0EA 86C8 B18A AFBB 238D
