@@ -2,6 +2,8 @@
 
 I am a Software Developer interested in compilers and decentralization.
 
+You can also find me in sourcehut at [https://sr.ht/~leonero/](https://sr.ht/~leonero/).
+
 My website: [https://nerone.dev/](https://nerone.dev/)
 
 <!--
