@@ -1,3 +1,5 @@
+## ⚠️⚠️ Not active in this profile anymore ;) ⚠️⚠️
+
 ### Hi there 👋
 
 I am a Software Developer interested in compilers and decentralization.
