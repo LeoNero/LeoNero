@@ -1,4 +1,4 @@
-## ⚠️⚠️ Not active in this profile anymore ;) ⚠️⚠️
+## ⚠️⚠️ I am not active on this profile anymore ;) ⚠️⚠️
 
 ### Hi there 👋
 
